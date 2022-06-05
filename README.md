@@ -12,3 +12,7 @@ HOW TO USE
 /bind ch   ( bind to open menu )
 
 If you got any questions Please dm urmomscool#8630 in discord I will  reach out to you ASAP
+
+
+IMPORTANT INFORMATION:
+THIS MOD IS CONFIRMED BY THE ADMINS AND YOU WILL NOT GET BANNED  FOR USING IT
